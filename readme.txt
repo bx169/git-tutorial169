@@ -1,1 +1,1 @@
-my name is takobibieieikuki
+my name is yamal
